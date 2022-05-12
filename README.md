@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dAksh1702
-- 👀 I’m interested in Web Designing, Cyber Security
+- 👀 I’m interested in Web Designing, App Designing, Cyber Security
 - 📫 Ping me on 
 - 😎 Discord:- Daksh#7568
 
